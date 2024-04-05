@@ -43,9 +43,9 @@ If you'd like to contribute to the project, follow these steps:
 
 ## Contact
 
-For any inquiries or feedback, please contact 2021uee0125@iitjammu.ac.in
+For any queriess or feedback, please contact 2021uee0125@iitjammu.ac.in
 
-Happy movie watching!
+
 
 
 
